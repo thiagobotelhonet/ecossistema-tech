@@ -14,4 +14,8 @@ Hoje, os grupos são divididos em tópicos específicos para facilitar uma melho
 
 ![image](https://github.com/thiagobotelhonet/ecossistema-tech/assets/99252640/28310994-7d03-4877-83a5-c94d9b00b674)
 
+Quer participar da nossa comunidade? Segue o link abaixo: 👇🏻
+
+https://chat.whatsapp.com/I9x9fkqOjeoALa4n9xwAp2
+
 
